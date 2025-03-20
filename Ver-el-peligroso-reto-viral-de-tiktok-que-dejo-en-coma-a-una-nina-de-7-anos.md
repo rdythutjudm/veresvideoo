@@ -1,10 +1,13 @@
 El peligroso reto viral de TikTok que dejó en coma a una niña de 7 años
 La plataforma de TikTok indicó que tomó la determinación de eliminar el contenido que incite a realizar acciones peligrosas.
 
-Imagen de El peligroso reto viral de TikTok que dejó en coma a una niña de 7 años
-El fabricante del juguete, Schylling Toys, advierte en su sitio web que los productos NeeDoh no deben calentarse ni congelarse, ya que esto puede causar lesiones. - Foto: cortesía
 
-Scarlett Selby, una niña de 7 años de Missouri, Estados Unidos, sufrió quemaduras de segundo y tercer grado, por lo que terminó en coma inducido, después de que un juguete le explotara en la cara tras seguir un reto en TikTok. 
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 El reto viral consistía en calentar en el microondas un juguete NeeDoh, de un material suave y flexible que permite apretarlos y estirarlos sin perder su forma.  
 
